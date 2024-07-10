@@ -1,1 +1,1 @@
-# ASKO-TOKEN
+# ASKO-COIN
